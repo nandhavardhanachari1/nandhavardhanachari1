@@ -14,7 +14,7 @@ I'm a B.Tech Computer Science (Data Science) student passionate about building i
 
 <div align="center">
 
-**📍 Location:** Nandyal, Andhra Pradesh, India | **📞 Phone:** +91 6309193021 | **📧 Email:** 24695a3218@gmail.com
+**📍 Location:** Nandyal, Andhra Pradesh, India | **📞 Phone:** +91 6309193021 | **📧 Email:** nandhavardhanachari@gmail.com
 
 </div>
 
